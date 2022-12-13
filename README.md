@@ -1,2 +1,0 @@
-# portfolio-jixooo
-portfolio.
